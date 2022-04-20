@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Sagrika, HR by rpofession who hunts for the great talent and came to this platform to look around few experts in cloud technologies.
+- 👋 Hi, I’m Sagrika, HR by profession who hunts for the great talent and came to this platform to look around few experts in cloud technologies.
